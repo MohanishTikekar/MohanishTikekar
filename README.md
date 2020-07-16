@@ -10,7 +10,7 @@
 
 - ⚡ Food for thought:  It is very imperative to build a strong conscience. If we can alleviate the pain, then why to suffer?
 
-- 💙 Abilities: Playing Guitart🎸, solving some tough Cryptic Crosswords 📰.
+- 💙 Abilities: Playing Guitart🎸, solving some tough Cryptic Crosswords 📰, writer at 'Simulacrum of Life'.
 
 - 🤟🏻 Deep Interests: Cryptology, Psychology, Philosohy, Game Theory.
 
