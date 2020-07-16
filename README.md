@@ -1,6 +1,6 @@
 ### Namaste 🙏🏻! 
 
-"Life is a nice trade-off- an ultimate Nash equilibrium."
+	"Life is a nice trade-off- an ultimate Nash equilibrium."
 
 - 😁 I’m looking to collaborate to solve good business problems with my software, life skills accumen.
 
