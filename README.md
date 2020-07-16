@@ -1,18 +1,20 @@
 ### Namaste 🙏🏻! 
 
-- 😁 I’m looking to collaborate to solve business problems with my software/ life skills.
+"Life is a nice trade-off- an ultimate Nash equilibria."
 
-- 💬 Ask me about any issues related to Tech, Life, Relationships, etc.
+- 😁 I’m looking to collaborate to solve good business problems with my software, life skills accumen.
 
-- 🤝🏻 Looking for help to develop a product which really means something.
+- 💬 Ask me about any issues, hacks and nuances related to Maths, Relationships and Life in general.
 
-- 📫 How to reach me: mohanish.vnit@gmail.com , 9960097088
+- 🤝🏻 Looking for help to develop products which really means something.
 
-- ⚡ Food for thought:  It is very imperative to build a strong conscience. If we can alleviate the pain, then why to suffer?
+- 📫 How to reach me: mohanish.vnit@gmail.com , +91-9960097088
 
-- 💙 Abilities: Playing Guitart🎸, solving some tough Cryptic Crosswords 📰, writer at 'Simulacrum of Life'.
+- ⚡ Food for thought: It is very imperative to build a strong conscience. If we can alleviate the pain, then why to suffer?
 
-- 🤟🏻 Deep Interests: Cryptology, Psychology, Philosohy, Game Theory.
+- 💙 Abilities: Playing Guitart🎸, solving some tough Cryptic Crosswords 📰, writing at 'Simulacrum of Life' (my Blog).
+
+- 🤟🏻 Deep Interests: Cryptology, Psychology, Philosohy, Game Theory, Music theory and what not. 
 
 - 🎐 My Message: In this knowledge society, working in depth is the only means to thrive in this world. Shallow work and half knowldge are detrimental.
 	   Brethren, let's be on our toes to tackle what is coming! 
