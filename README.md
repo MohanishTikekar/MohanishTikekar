@@ -1,6 +1,6 @@
 ### Namaste 🙏🏻! 
 
-"Life is a nice trade-off- an ultimate Nash equilibria."
+"Life is a nice trade-off- an ultimate Nash equilibrium."
 
 - 😁 I’m looking to collaborate to solve good business problems with my software, life skills accumen.
 
@@ -17,7 +17,7 @@
 - 🤟🏻 Deep Interests: Cryptology, Psychology, Philosohy, Game Theory, Music theory and what not. 
 
 - 🎐 My Message: In this knowledge society, working in depth is the only means to thrive in this world. Shallow work and half knowldge are detrimental.
-	   Brethren, let's be on our toes to tackle what is coming! 
+	         Brethren, let's be on our toes to tackle what is coming! 
 
 <!--
 **MohanishTikekar/MohanishTikekar** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
